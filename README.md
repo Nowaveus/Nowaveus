@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nowaveus
 - 👀 I’m interested in stuff
-- 🌱 I’m currently learning how to produce music
+- 🌱 I’m currently learning how to produce music and make games
 - 💞️ I’m looking to collaborate on nothing atm
 - 📫 discord is Nowa.#0010, just dm me there
